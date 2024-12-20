@@ -1,5 +1,5 @@
 # 💫 About Me:
-👨‍🎓  1st Year Computer Science Major <br>🌱 Currently learning Java<br> 🇵🇭  From the Philippines <br> <br>
+👨‍🎓  3rd Year Computer Science Major <br>🌱 Currently living<br> 🇵🇭  From the Philippines <br> <br>
 
 
 ## 🌐 Socials:
