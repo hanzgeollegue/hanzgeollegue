@@ -1,5 +1,5 @@
 # 💫 About Me:
-👨‍🎓  3rd Year Computer Science Student <br>🌱 Currently living<br> 🇵🇭  From the Philippines <br> <br>
+👨‍🎓  3rd Year Computer Science Student <br> 🇵🇭  From the Philippines <br>
 
 
 ## 🌐 Socials:
